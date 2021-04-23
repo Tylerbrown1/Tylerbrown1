@@ -1,5 +1,4 @@
 ### Hi there its Tyler 👋
-[![HitCount](http://hits.dwyl.com/Tylerbrown1/Tylerbrown1.svg)](http://hits.dwyl.com/Tylerbrown1/Tylerbrown1)
 
 
 
